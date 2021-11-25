@@ -11,4 +11,4 @@
 
 Join the channel to see more videos like this. [Bedimcode](https://www.youtube.com/c/Bedimcode)
 
-![halloween](/preview.png)
+![halloween](C:\Users\Tharindu Thilakshana\OneDrive\Desktop\My All Files\Github Downloads\Responsive Webpages\responsive-halloween-website-main)
